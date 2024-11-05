@@ -13,5 +13,8 @@ IF YOU HAVE AN EDGE, YOU NEVER GIVE IT AWAY, EVER!
 - You don't do it for a professor in a class
 - You don't do it for a hedge fund interview
 - You don't do it in a research submission
-- And you don't do it for a few subscription $$
+- And you don't do it for a few subscription $$  
 Actual trading edge that will overcome frictions is very difficult to find.
+
+## The truth about a lot of financial "research"
+
